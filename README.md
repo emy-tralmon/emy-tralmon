@@ -3,15 +3,15 @@
 
 🦋 _Meu nome é Emilly Oliveira_ 🦋
 
-🌹 _Atualmente estou fazendo um curso online de Nail Designer._
+🌹 _Atualmente estou estudando no alura._
 
-🌙 _No momento estou a procura de modelos, para o meu desenvolvimento em relação as unhas/em geis/fibra._
+🌙 _No momento estou me desenvolvendo na linguagem JavaScript._
 
-🗒️ _Utilizo esse espaço com o objetivo de organização aos meus conhecimentos._ 
+🗒️ _Utilizo esse espaço com o objetivo de organização e compartilhamento dos meus projetos desenvolvidos._ 
 
 ### maneiras de entrar em contato comigo 📲
 
-📧 NailDesigner@gmail.com
+📧 emytralmon@gmail.com
 
 @emy_tralmon
 

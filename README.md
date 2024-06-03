@@ -1,16 +1,19 @@
-## Hi there 👋
+### Bem vindos ao meu perfil 🌸
 
-<!--
-**emy-tralmon/emy-tralmon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+🦋 _Meu nome é Emilly Oliveira_ 🦋
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🌹 _Atualmente estou fazendo um curso online de Nail Designer._
+
+🌙 _No momento estou a procura de modelos, para o meu desenvolvimento em relação as unhas/em geis/fibra._
+
+🗒️ _Utilizo esse espaço com o objetivo de organização aos meus conhecimentos._ 
+
+### maneiras de entrar em contato comigo 📲
+
+📧 NailDesigner@gmail.com
+
+@emy_tralmon
+
+
+![](https://media.tenor.com/f9a4qBMlLk4AAAAi/appreciated-appreciate.gif)
